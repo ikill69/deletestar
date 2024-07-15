@@ -1,1 +1,1 @@
-# deletestar
+# deletestar.com
